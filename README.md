@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil ✴️
+e### Boas vindas ao meu perfil ✴️
 
 Meu nome é vexmn 
 
@@ -8,4 +8,9 @@ Meu nome é vexmn
 
 ### Você pode entrar em contato comigo 📫
 
+00001116551743sp@al.educacao.sp.gov.br
+
+@vexmn
+
+![](![image](https://github.com/vexmn/VEXMN/assets/170521680/e643a9d6-be40-4134-8ee0-14389b5ae0b5)
 
